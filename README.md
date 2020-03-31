@@ -1,2 +1,0 @@
-# AldieryGonzalez.github.io
-Website
